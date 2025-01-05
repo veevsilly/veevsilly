@@ -1,1 +1,1 @@
-hi i am veev! check out my strawpage. :3
+hi i am veev! pinky promise im cool!
